@@ -1,2 +1,3 @@
+![1000013420](https://github.com/user-attachments/assets/d6b7814e-425e-4bc1-a0b7-d5a18df45d1a)
 # drawings-ok
 ok
